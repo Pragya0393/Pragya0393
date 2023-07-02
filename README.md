@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pragya0393
+- 👀 I’m interested in ...Researching industry-related topics (combining online sources, interviews and studies) Writing clear marketing copy to promote our products/services Preparing well-structured drafts using Content Management Systems Proofread and edit blog posts before publication Coordinate with marketing and design teams to illustrate articles Conduct simple keyword research and use SEO guidelines to increase web traffic Identify customers’ needs and gaps in our content and recommend new topics.
+- 🌱 I’m currently learning ... something cool in writing field
+- 💞️ I’m looking to collaborate on ... writing projects in any sector
+- 📫 How to reach me ... 9472252208 | pragyabhartee03@gmail.com
